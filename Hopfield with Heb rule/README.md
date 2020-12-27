@@ -1,0 +1,1 @@
+# Hopfiled-with-Heb-rule
